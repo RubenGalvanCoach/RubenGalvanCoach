@@ -1,1 +1,1 @@
-hola
+hola necesito ayuda con varias dudas que tengo sobre programas de cripto, transacciónes y de más un saludo gracias
