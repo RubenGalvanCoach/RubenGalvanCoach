@@ -1,1 +1,2 @@
-hola necesito ayuda con varias dudas que tengo sobre programas de cripto, transacciónes y de más un saludo gracias
+hola mi nombre es Rubén Ignacio Galván hinojosa y tengo está licencia de Mozilla y quisiera información acerca de este programa y a qué estoy acogido y todo lo posible ya que creo que no estoy al día de la información exacta 
++34604971320
